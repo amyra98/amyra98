@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Priti Kumari</h1>
-<h3 align="center">A passionate tech enthusiast from NIT,Rourkela</h3>
+<h3 align="center">A passionate tech enthusiast from IIT BHU </h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=amyra98&label=Profile%20views&color=0e75b6&style=flat" alt="amyra98" /> </p>
 
