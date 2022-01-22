@@ -5,17 +5,17 @@
 
 - 🔭 I’m currently working on **web dev and CP**
 
-- 🌱 I’m currently learning **React, CPP**
+- 🌱 I’m currently learning **React, DSA**
 
 - 👯 I’m looking to collaborate on **Github**
 
-- 🤝 I’m looking for help with **DSA**
+- 🤝 I’m looking for help with **Cybersecurity**
 
 - 💬 Ask me about **me 🤪 and tech stuff**
 
 - 📫 How to reach me **priti2002bwn@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/search?q=resume](https://drive.google.com/drive/search?q=resume)
+- 📄 Know about my experiences [https://drive.google.com/file/d/12rMusqHyuZzZzHJt7aPg7O6QY7oG4lSL/view?usp=sharing](https://drive.google.com/file/d/12rMusqHyuZzZzHJt7aPg7O6QY7oG4lSL/view?usp=sharing)
 
 - ⚡ Fun fact **I laugh a lot 😁**
 
