@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **priti2002bwn@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/12rMusqHyuZzZzHJt7aPg7O6QY7oG4lSL/view?usp=sharing](https://drive.google.com/file/d/12rMusqHyuZzZzHJt7aPg7O6QY7oG4lSL/view?usp=sharing)
+- 📄 Know about my experiences [Resume_Priti](https://drive.google.com/file/d/12rMusqHyuZzZzHJt7aPg7O6QY7oG4lSL/view?usp=sharing)
 
 - ⚡ Fun fact **I laugh a lot 😁**
 
